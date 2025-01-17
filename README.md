@@ -2,7 +2,7 @@
 - 👀 I’m interested in making sites
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on make a dog site
-- 📫 How to reach me @PrivatROBLOX - telegram
+- 📫 How to reach me @PrivatPvZ - telegram
 - 😄 Pronouns: ... he/his
 - ⚡ Fun fact: waffle
 
